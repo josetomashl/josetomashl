@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @josetomashl
-- 📫 You can contact me at jose-tomas.hernandez-lopez@capgemini.com
+- 📫 You can contact me at josetomas.hlopez@gmail.com
